@@ -37,6 +37,9 @@ Discord-Leaks (Also in Discord Investigation Dir.) - https://discordleaks.unicor
 
 SkidSearch - https://skidsearch.top
 
+AshleyMadison - https://ashley.cynic.al/
+
+LeakedDomains - https://leaked.domains/
 
 
 
